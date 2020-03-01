@@ -1,1 +1,1 @@
-Life is a beautiful space.
+Life is a beautiful space. Death by nebula.
